@@ -1,4 +1,4 @@
-### Hi there :man_technologist: :godmode:
+### Hi there :man_technologist:
 
 
 <!--
