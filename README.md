@@ -1,5 +1,5 @@
-### Hi there 👨‍💻 😎
-##### Professionally works in :snake: python dabbling in C# :man_technologist: :video_game:
+### Hi there :male_technologist: :cool:
+
 
 <!--
 **danielrosheuvel/danielrosheuvel** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
