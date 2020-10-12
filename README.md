@@ -1,4 +1,4 @@
-### Hi there :man_technologist:
+### Hi there :wave:
 
 
 <!--
