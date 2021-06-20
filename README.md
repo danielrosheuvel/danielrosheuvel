@@ -1,4 +1,4 @@
-![Image of Yaktocat](https://octodex.github.com/images/yaktocat.png)
+![SMILE](https://imgur.com/c0zPw7f)
 
 
 <!--
