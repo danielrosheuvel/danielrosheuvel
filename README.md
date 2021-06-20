@@ -1,4 +1,4 @@
-![SMILE](https://imgur.com/c0zPw7f)
+![img](https://i.imgur.com/c0zPw7f.jpg)
 
 
 <!--
